@@ -1,2 +1,0 @@
-- 🎀 Welcome welcome! I’m @moridog
-- ? "You need a little bit of insanity to do great things."
